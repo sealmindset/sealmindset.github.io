@@ -1,0 +1,2 @@
+# sealmindset.github.io
+Website
